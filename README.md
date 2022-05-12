@@ -1,7 +1,8 @@
 - 👋 Hey.eu sou @thesteffany
 - ⭐ Eu tenho interesse em Pensamento Computacional.
 - 📧 steffany.basniak@escola.pr.gov.br.
--📫 Meu instagram é @teffaa_2.
+- 🤍 Meu instagram é @teffaa_2.
+- 🇧🇷 I'm brasil sil sil.
 
 
 
