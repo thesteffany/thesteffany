@@ -1,3 +1,4 @@
+*QUEM EU SOU*
 - 👋 Hey.eu sou @thesteffany
 - ⭐ Eu tenho interesse em Pensamento Computacional.
 - 📧 steffany.basniak@escola.pr.gov.br.
